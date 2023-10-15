@@ -1,0 +1,1 @@
+Hi! I am Sunny town, heard that you have a computer class in school called "polar electronic classroom" software control your screen, angry! Eeeee! The online method is useless!Today, I am going to make a software for you to control the polar electronic classroom! Interested come and see!!
